@@ -10,7 +10,7 @@ A Digital Marketing Project by Ali Pirouz
 
 
 
-# [Echotemplate.com](https://echotemplate.com)
+# [DigiPlus Canada](www.digiplus.ca)
 
 # [BD Weather Coming Soon Responsive HTML Template](https://echotemplate.com/templates/bd-weather-coming-soon-responsive-html-template)
 
